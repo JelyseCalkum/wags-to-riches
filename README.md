@@ -46,11 +46,11 @@ Maddie Gillis
 
 Zachary Shedd
 
-Steven Zepeta
+Steven Zepeda
 
 Jelyse Calkum
 
-Carson Garbe
+
 
 
 
